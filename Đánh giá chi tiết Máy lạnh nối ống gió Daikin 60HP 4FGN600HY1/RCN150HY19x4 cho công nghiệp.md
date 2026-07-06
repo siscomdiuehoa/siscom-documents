@@ -1,0 +1,3 @@
+# Đánh giá chi tiết Máy lạnh nối ống gió Daikin 60HP 4FGN600HY1/RCN150HY19x4 cho công nghiệp  Điều hòa công nghiệp Daikin 60HP - Giải pháp làm mát tối ưu cho nhà xưởng lớn. Công suất mạnh mẽ, độ bền vượt trội, hỗ trợ lắp đặt chuyên nghiệp từ SISCOM. #Daikin
+
+https://siscom.vn/san-pham/dieu-hoa-am-tran-daikin-1-chieu-lanh-4fgn600hy1-rcn150hy19x4/  Xem chi tiết bài viết tại website của chúng tôi: [Điện lạnh công nghiệp SISCOM](https://siscom.vn/)
