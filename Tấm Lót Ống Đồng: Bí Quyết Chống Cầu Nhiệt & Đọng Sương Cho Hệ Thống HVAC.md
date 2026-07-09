@@ -1,0 +1,1 @@
+# Tấm Lót Ống Đồng: Bí Quyết Chống Cầu Nhiệt & Đọng Sương Cho Hệ Thống HVAC  Ống đồng bị đọng sương tại điểm treo? Giải pháp là tấm lót bảo ôn PU Foam từ SISCOM. Cách nhiệt tốt, ngăn cầu nhiệt, giá cực tốt cho dự án. #HVAC https://siscom.vn/san-pham/tam-lot-ong-dong/  Xem chi tiết bài viết tại website của chúng tôi: [Điện lạnh công nghiệp SISCOM](https://siscom.vn/)
